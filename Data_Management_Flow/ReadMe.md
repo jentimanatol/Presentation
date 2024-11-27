@@ -1,6 +1,6 @@
 # [  Data Management Flow Presentation  ](https://data-management-flow-8myu8as.gamma.site/)
 
-![](https://github.com/jentimanatol/Presentation/blob/88bb8098353a0aca1459c2f4eada7211f0313994/Data_Management_Flow/Screenshots/Data%20Management%20Flow.png)
+![](https://github.com/jentimanatol/Presentation/blob/bc506fe560a1cd273dba62a06b0d370b7019803f/Data_Management_Flow/Screenshots/Data%20Management%20Flow.png)
 
 ![](https://github.com/jentimanatol/Presentation/blob/88bb8098353a0aca1459c2f4eada7211f0313994/Data_Management_Flow/Screenshots/2_Introduction%20to%20Data%20Management%20Flow.png)
 
