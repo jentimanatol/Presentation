@@ -1,4 +1,4 @@
-# [ ** Recent Presentation Dating App ** - Beauty Golden Ratio   ](https://beauty-ratio-dating-brhueip.gamma.site/)
+# [  Recent Presentation Dating App - Beauty Golden Ratio   ](https://beauty-ratio-dating-brhueip.gamma.site/)
 
 ![](https://github.com/jentimanatol/Presentation/blob/bbbe51f16eded4511e7b5f6da63080d8b9c7dc78/Beauty_Ratio_Dating_App/Find-Your-Perfect-Match-with-the-Beauty-Ratio-Dating-App/1_FindYourPerfectMatchwiththeBeutyRatioDatingApp.png)
 ![](https://github.com/jentimanatol/Presentation/blob/d49f453b378188a4d8d7607e91be86d621d7793f/Beauty_Ratio_Dating_App/Find-Your-Perfect-Match-with-the-Beauty-Ratio-Dating-App/2_Measuring_Beauty_TheGolden%20RatioPhi1.618.png)
