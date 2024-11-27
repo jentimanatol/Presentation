@@ -55,7 +55,7 @@ The proposed app is a dating and social networking platform that connects users 
 
 The ideal outcome is to create meaningful connections by ensuring users are matched with partners who not only meet their aesthetic preferences but also share intellectual and lifestyle compatibility. Users will engage in deeper, more fulfilling relationships facilitated by the app's unique matchmaking algorithms.
 
-Development Time
+### Development Time
 
 •	Estimated Time: Approximately 2-3 weeks, depending on the group size. If additional time is needed, certain features may be simplified or deferred.
 
