@@ -1,6 +1,24 @@
 
-[](Beauty_Ratio_Dating_App/Find-Your-Perfect-Match-with-the-Beauty-Ratio-Dating-App/1_Find Your Perfect Match with the Beauty Ratio Dating App.png)
+[](Beauty_Ratio_Dating_App/Find-Your-Perfect-Match-with-the-Beauty-Ratio-Dating-App/1_FindYourPerfectMatchwiththeBeutyRatioDatingApp.png)
 
+(Beauty_Ratio_Dating_App/Find-Your-Perfect-Match-with-the-Beauty-Ratio-Dating-App/2_Measuring_Beauty_TheGolden RatioPhi1.618.png)
+
+(Beauty_Ratio_Dating_App/Find-Your-Perfect-Match-with-the-Beauty-Ratio-Dating-App/3_AssessingIntellectualStatus.png)
+
+(Beauty_Ratio_Dating_App/Find-Your-Perfect-Match-with-the-Beauty-Ratio-Dating-App/4_EvaluatingMaterialStatus.png)
+
+(Beauty_Ratio_Dating_App/Find-Your-Perfect-Match-with-the-Beauty-Ratio-Dating-App/5_AutomaticPartnerSelection.png)
+
+(Beauty_Ratio_Dating_App/Find-Your-Perfect-Match-with-the-Beauty-Ratio-Dating-App/6_The ScienceBehindtheBeautyRatio.png)
+
+(Beauty_Ratio_Dating_App/Find-Your-Perfect-Match-with-the-Beauty-Ratio-Dating-App/7_AdvancedAlgorithmsforthePerfectMatch.png)
+
+(Beauty_Ratio_Dating_App/Find-Your-Perfect-Match-with-the-Beauty-Ratio-Dating-App/8_PrivacyandDataSecurity.png)
+
+(Beauty_Ratio_Dating_App/Find-Your-Perfect-Match-with-the-Beauty-Ratio-Dating-App/9_MonetizationStrategies.png)
+
+
+(Beauty_Ratio_Dating_App/Find-Your-Perfect-Match-with-the-Beauty-Ratio-Dating-App/10_JointheBeautyRatioDatingRevolution.png)
 
 
 # Confidence: The Intersection of Love and Fear
