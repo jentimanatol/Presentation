@@ -1,4 +1,5 @@
-# [Beauty Golden Ratio Dating App ](https://beauty-ratio-dating-brhueip.gamma.site/)
+# [  Beauty Golden Ratio Dating App Presentation  ](https://beauty-ratio-dating-brhueip.gamma.site/)
+
 ![](https://github.com/jentimanatol/Presentation/blob/bbbe51f16eded4511e7b5f6da63080d8b9c7dc78/Beauty_Ratio_Dating_App/Find-Your-Perfect-Match-with-the-Beauty-Ratio-Dating-App/1_FindYourPerfectMatchwiththeBeutyRatioDatingApp.png)
 ![](https://github.com/jentimanatol/Presentation/blob/d49f453b378188a4d8d7607e91be86d621d7793f/Beauty_Ratio_Dating_App/Find-Your-Perfect-Match-with-the-Beauty-Ratio-Dating-App/2_Measuring_Beauty_TheGolden%20RatioPhi1.618.png)
 ![](https://github.com/jentimanatol/Presentation/blob/d49f453b378188a4d8d7607e91be86d621d7793f/Beauty_Ratio_Dating_App/Find-Your-Perfect-Match-with-the-Beauty-Ratio-Dating-App/3_AssessingIntellectualStatus.png)
@@ -115,6 +116,11 @@ factors underscores the paramount importance of confidence in shaping our
 emotional and behavioral responses, ultimately contributing to our quest for a  
 fulfilling existence.
 
+
+
 _Not protected by copyright, may be used for its intended purpose._  
 _Author: Anatolie Jentimir._
 
+### Additional Source
+
+[ Golden Ratio ](https://en.wikipedia.org/wiki/Golden_ratio)
