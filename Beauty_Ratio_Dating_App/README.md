@@ -88,3 +88,6 @@ _Author: Anatolie Jentimir._
 ### Additional Source
 
 [ Golden Ratio ](https://en.wikipedia.org/wiki/Golden_ratio)
+
+[ The Human Face and the Golden Ratio ](https://www.goldennumber.net/face/)
+[ Facial Beauty Analysis and the Golden Ratio ](https://www.youtube.com/watch?v=kKWV-uU_SoI&t=169s&ab_channel=phimatrix1618)
